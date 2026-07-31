@@ -10,7 +10,7 @@ https://me17-group-cat-fox-classifier-dolncujh2b4hej4dg87sw3.streamlit.app/
 4. Essien, Imoh Boniface - 22/EG/ME/1748 - GitHub: Imoh-art
 5. Bassey, Abasi-ifreke Dominus - 22/EG/ME/1788 - GitHub: leoabass
 6. James Abasiodu Paul - 22/EG/ME/1708 - GitHub: abasiodujames637-code
-7. George Precious - 22/EG/ME/1718
+7. George Precious - 22/EG/ME/1718 - preciousgeorge2004-creator
 8. Jackson Victor Friday - 22/EG/ME/1758 - GitHub: victorjack1243-glitch
 9. Silas, Solomon God'spower - 22/EG/ME/1698 - GitHub: solocheriisilas-sudo
 
